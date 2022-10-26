@@ -1,0 +1,1 @@
+# PraktikumKomnum2022
